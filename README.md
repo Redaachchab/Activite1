@@ -1,2 +1,1 @@
 ﻿# Activite 1
-![Capture d'écran 2025-04-20 151806](https://github.com/user-attachments/assets/f72dbc3a-adda-477e-8294-84f88d65fa7f)
